@@ -1,1 +1,1 @@
-https://jggzs666.github.io/jggzs.github.io/
+https://jggzs666.github.io/
